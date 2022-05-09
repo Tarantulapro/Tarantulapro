@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Yoshimura
+- 👀 I’m interested in sports, books, photography, designes and programing
+- 🌱 I’m currently learning programing with python
+- 💞️ I’m looking to have fun while learning new things
+- 📫 How to reach me it's easy aturbanwear@yahoo.com 
